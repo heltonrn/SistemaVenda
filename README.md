@@ -1,3 +1,3 @@
 # SistemaVenda
 
-Ian passou por aqui 😉🙃
+Ian, Odair e Davi passaram por aqui 😉🙃
